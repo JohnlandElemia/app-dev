@@ -9,6 +9,10 @@ My FIrst Respository
 ![image](https://github.com/user-attachments/assets/cf8e3fd1-9138-470b-ad1a-fbb73ed7fc5c)
 
 
+#We met in STI College Rosario as 1st year students and she was a transferee at that time. When I saw her, I was captivated by her beauty. I instantly fell in love with her. 
+I message her with confidence 📱📧 ***Ate tara emel** 🎮 ... ⏩Fastforward for almost 2 years, she became my wife 👫  and I will love her conditionally and forever and always. Iloveyousomuch mahal 💋
+
+
 Mrs.Ashley Nicole Elemia 👨‍❤️‍👨 💒 👪
  
 
