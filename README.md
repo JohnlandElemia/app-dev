@@ -4,7 +4,7 @@ My FIrst Respository
 
 
 
-***Me and My Wife***
+***Me and My Wife***  🖤 👰‍♀️🏠 👫💑 👩‍❤️‍👨💏💋
 
 ![image](https://github.com/user-attachments/assets/cf8e3fd1-9138-470b-ad1a-fbb73ed7fc5c)
 
